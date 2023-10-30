@@ -1,2 +1,2 @@
 # idk
-tady něco maúíšu ať to vypadá že něco dělám a vím co dělám
+tady něco napíšu ať to vypadá že něco dělám a vím co dělám
